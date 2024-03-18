@@ -1,0 +1,1 @@
+# -QRRevision-Tecnica-aspx-patenteSS5387
